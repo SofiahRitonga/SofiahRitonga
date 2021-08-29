@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SofiahRitonga
-- 👀 I’m interested in 
+- 👀 I’m interested in software developed
 - 🌱 I’m currently learning Coding bahasa pemrograman
 - 💞️ I’m looking to collaborate on menjadi seorang programmer handal
 - 📫 How to reach me di akun instagram @sofff_16
